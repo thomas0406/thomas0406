@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ll
 - 💞️ I’m looking to collaborate on ll
 - 📫 How to reach me lll
-- 😄 Pronouns: him/her
+- 😄 Pronouns: hehehehhe
 - ⚡ Fun fact: ll
 
 <!---
